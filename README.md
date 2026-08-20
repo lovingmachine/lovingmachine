@@ -9,5 +9,3 @@ Me chamo Ana Beatriz Dall'Antonia
 ### Você pode entrar em contato comigo 💌
 
 00001147049452sp@al.educacao.sp.gov.br
-  
-Instagram: @beatricesviolin
